@@ -1,2 +1,0 @@
-# novo-de-tudo
-.
